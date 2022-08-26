@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @CeciGavia
+- 👀 I’m interested in people looking for a job!
+- 🌱 I’m currently learning about IT 
+- 📫 How to reach me: cecilia.gaviachavez@dxc.com

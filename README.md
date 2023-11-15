@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @CeciGavia
-- 👀 I’m interested in people looking for a job!
+- 👀 I’m looking for a job!
 - 🌱 I’m currently learning about IT 
-- 📫 How to reach me: cecilia.gaviachavez@dxc.com
+- Currently I'm in formation as a Jr FullStack Developer in Generation México, so, I'm fully open to learn new technologies and become a developer with the best practices :)) I enjoy working as a team and always share my knowledge with others 🤍
